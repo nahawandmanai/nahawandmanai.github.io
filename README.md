@@ -1,1 +1,0 @@
-# nahawandmanai.github.io
